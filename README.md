@@ -1,2 +1,0 @@
-# andas1
-spel
